@@ -1,4 +1,4 @@
-# Hi, I'm Jino Guinang! 🏗️🏃‍♂️
+# Hi, I'm Jino Guinang! 
 
 I am a **Civil Engineering Student** dedicated to building the future—both in digital blueprints and through physical grit. I bridge the gap between technical design and an active, adventurous lifestyle.
 
