@@ -22,7 +22,7 @@ I am a **Civil Engineering Student** dedicated to building the future—both in 
 ### 🤝 Let's Connect!
 - 🔭 **Working on:** Refining my portfolio of Revit residential designs.
 - 💬 **Ask me about:** Civil Engineering basics, workout routines, or the best hiking trails.
-- 📫 **Reach me at:** [www.linkedin.com/in/jinoguinang]
+- 📫 **Reach me at:** www.linkedin.com/in/jinoguinang
 
 ---
 
