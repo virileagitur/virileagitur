@@ -26,4 +26,4 @@ I am a **Civil Engineering Student** dedicated to building the future—both in 
 
 ---
 
-> "We build too many walls and not enough bridges." — *Isaac Newton* (But I can help you design both.)
+> "We build too many walls and not enough bridges." — *Isaac Newton* 
